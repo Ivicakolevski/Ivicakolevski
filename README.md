@@ -1,4 +1,4 @@
-👋 Hi, I’m #Cosmin#.
+👋 Hi, I’m ***Cosmin***.
 Now that you and I have established a level of trust, how about working outside?
 FREELANCER PLATFORM's transaction fee is so bad it makes me nervous.
 What about working with SKYPE or TELEGRAM?
